@@ -1,3 +1,3 @@
 # host-trial
 
-Hosting a readme in hosting for the first time
+No Gaming for **Manu** this Week 
